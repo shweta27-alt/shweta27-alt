@@ -1,4 +1,4 @@
-### Sup Nerds⌑
+### Sup Nerds ⌑
 
 I like making things, I'm a fairly curious person.
 
